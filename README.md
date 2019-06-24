@@ -1,0 +1,1 @@
+# ikili_kutuk_formasyonu
